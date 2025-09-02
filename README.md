@@ -2,4 +2,4 @@
 
 Mayjoy B. Cillo
 John Jethro B. Santiago
-for merging 2nd for mergeeeeeee
+Mergeddddd
